@@ -1,7 +1,8 @@
 ### Boas vindas ao meu perfil 💜
 
+![](https://media.tenor.com/Sd033OZMq5cAAAAC/presta-atencao-felipe-neto.gif)
+
 Meu nome é Júlia e estou adquirindo conhecimento
 
-![](https://tenor.com/pt-BR/view/seja-benvindo-welcome-greet-make-face-lively-gif-15095303)
+![](https://media.tenor.com/le82ZWfTIeUAAAAd/seja-benvindo-welcome.gif)
 
-![](https://tenor.com/pt-BR/view/got-it-felipe-neto-celebrating-gif-10861816)
